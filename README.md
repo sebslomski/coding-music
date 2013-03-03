@@ -5,6 +5,7 @@
 - The Social Network
 - Tron Legacy
 - [Hans Zimmer - Inception](https://itunes.apple.com/de/album/inception-music-from-motion/id380349905?l=en)
+- [Slumdog Millionaire (Original Motion Soundtrack)](https://itunes.apple.com/de/album/slumdog-millionaire-original/id299873802?l=en)
 
 ## Music Albums
 - Bavaria (Haindling)
